@@ -1,4 +1,4 @@
-# 
+# Natif Practical AI Projects for Students plugins. Avec sécurité de l'IA et IA générative — optimisé pour des performances maximales.
 
 
 
